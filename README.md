@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **malik16603@gmail.com**
 
-- ⚡ Fun fact **Programming is like music, when proffesional does it hits heart but when you do it hits shit**
+- ⚡ Fun fact **Programming is like music when a professional does it, it touches the heart, but when you do it, it hits the shit.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
